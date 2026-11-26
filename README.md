@@ -60,7 +60,7 @@ To build my career in Networking and Telecommunication Technologies, continuousl
 
 ## 📫 Connect With Me
 
-- GitHub: [My GitHub Profile](https://github.com/)
+- GitHub: [My GitHub Profile](https://github.com/Faizan-Ali0581)
 
 ---
 
